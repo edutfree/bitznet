@@ -1,6 +1,6 @@
 # Bitz Net官网地址 最新入口
 
-最新地址：[ca.bitzconnect.com](https://j1.bnaffloop.com/#/register?code=Vu7eyHrN)
+最新地址：[https://dash.bitzconnect.com](https://j1.bnaffloop.com/#/register?code=Vu7eyHrN)
 
 > BitzNet官网跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
 
