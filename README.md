@@ -1,8 +1,6 @@
 # Bitz Net官网地址 最新入口
 
-最新地址：[https://dash.bitzconnect.com](https://af2.bnaffloop.com/#/register?code=Vu7eyHrN)
-
-最新地址2：[https://my.bitzconnect.com](https://my.bitzconnect.com/#/register?code=Vu7eyHrN)
+最新地址：[https://as.bitzconnect.com](https://as.bitzconnect.com/#/register?code=Vu7eyHrN)
 
 ## 简介
 
