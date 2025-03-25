@@ -1,6 +1,6 @@
 # Bitz Net官网地址 最新入口
 
-最新地址：[https://bitznext.com](https://dash.bitznext.com/#/register?code=Vu7eyHrN)
+最新地址：[https://bitznext.com](https://ent.bitznext.com/#/register?code=Vu7eyHrN)
 
 ## 简介
 
