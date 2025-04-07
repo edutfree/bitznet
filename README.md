@@ -1,6 +1,6 @@
 # Bitz Net官网地址 最新入口
 
-最新地址：[https://bitznext.com](https://ent.bitznext.com/#/register?code=Vu7eyHrN)
+最新地址：[https://portal.getbn.net](https://portal.getbn.net/#/register?code=Vu7eyHrN)
 
 ## 简介
 
@@ -12,7 +12,7 @@ Bitz Net对下列国家和地区的所有线路支持流媒体解锁：美国、
 
 感恩节感恩有你，黑色星期五来临之际，Bitz Net 现在推出快闪特惠：感恩节 85 折优惠活动。
 
-优惠码：[TURKEY24](https://dash.bitznext.com/#/register?code=Vu7eyHrN)，所有订阅均可使用，请在下单时填写。
+优惠码：[TURKEY24](https://portal.getbn.net/#/register?code=Vu7eyHrN)，所有订阅均可使用，请在下单时填写。
 
 有效期至 2024 年 12 月 1 日 23:59 分。
 
