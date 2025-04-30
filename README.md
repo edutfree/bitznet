@@ -10,11 +10,11 @@ Bitz Net对下列国家和地区的所有线路支持流媒体解锁：美国、
 
 ## Bitz Net优惠码
 
-感恩节感恩有你，黑色星期五来临之际，Bitz Net 现在推出快闪特惠：感恩节 85 折优惠活动。
+2025 五一劳动节 88 折优惠
 
-优惠码：[TURKEY24](https://portal.getbn.net/#/register?code=Vu7eyHrN)，所有订阅均可使用，请在下单时填写。
+所有订阅均可使用，有效期至 2025 年 5 月 2 日 23:59 分。
 
-有效期至 2024 年 12 月 1 日 23:59 分。
+优惠码：[512025](https://portal.getbn.net/#/register?code=Vu7eyHrN)，所有订阅均可使用，请在下单时填写。
 
 ## 特色
 
