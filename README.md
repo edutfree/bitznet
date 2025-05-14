@@ -1,6 +1,6 @@
 # Bitz Net官网地址 最新入口
 
-最新地址：[https://portal.getbn.net](https://portal.getbn.net/#/register?code=Vu7eyHrN)
+最新地址：[ac.getbn.net](https://ac.getbn.net/#/register?code=Vu7eyHrN)
 
 ## 简介
 
@@ -14,7 +14,7 @@ Bitz Net对下列国家和地区的所有线路支持流媒体解锁：美国、
 
 所有订阅均可使用，有效期至 2025 年 5 月 2 日 23:59 分。
 
-优惠码：[512025](https://portal.getbn.net/#/register?code=Vu7eyHrN)，所有订阅均可使用，请在下单时填写。
+优惠码：[512025](https://ac.getbn.net/#/register?code=Vu7eyHrN)，所有订阅均可使用，请在下单时填写。
 
 ## 特色
 
