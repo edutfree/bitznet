@@ -1,6 +1,8 @@
 # bitznet官网地址最新入口
 
-最新地址：[client.startbitz.net](https://client.startbitz.net/#/register?code=Vu7eyHrN)
+官网：[bitzconnect.com](https://client.startbitz.net/#/register?code=Vu7eyHrN)
+
+最新直连地址：[client.startbitz.net](https://client.startbitz.net/#/register?code=Vu7eyHrN)
 
 ## 简介
 
