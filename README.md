@@ -20,9 +20,9 @@ BitzNet对下列国家和地区的所有线路支持流媒体解锁：美国、�
 
 ## BitzNet优惠码
 
-Bitz Net 现提供限时75折优惠码：[2025DOWN75](https://client.startbitz.net/#/register?code=Vu7eyHrN)
+Bitz Net 推出节日特惠：中秋节 88 折优惠活动。
 
-有效期至2025年8月30日
+Bitz Net 现提供限时88折优惠码：[ZQ2025](https://client.startbitz.net/#/register?code=Vu7eyHrN)
 
 ## 特色
 
