@@ -1,8 +1,8 @@
 # bitznet官网地址最新入口
 
-官网：[bitzconnect.com](https://ca.neobitznet.com/#/register?code=Vu7eyHrN)
+官网：[bitzconnect.com](https://as.neobitznet.com/#/register?code=Vu7eyHrN)
 
-最新直连地址：[client.neobitznet.com](https://ca.neobitznet.com/#/register?code=Vu7eyHrN)
+最新直连地址：[client.neobitznet.com](https://as.neobitznet.com/#/register?code=Vu7eyHrN)
 
 
 
