@@ -1,8 +1,8 @@
 # bitznet官网地址最新入口
 
-官网：[bitzconnect.com](https://as.neobitznet.com/#/register?code=Vu7eyHrN)
+官网：[bitzconnect.com](https://ca.secbitz.net/#/register?code=Vu7eyHrN)
 
-最新直连地址：[client.neobitznet.com](https://as.neobitznet.com/#/register?code=Vu7eyHrN)
+最新直连地址：[secbitz.net](https://ca.secbitz.net/#/register?code=Vu7eyHrN)
 
 
 
@@ -24,7 +24,7 @@ BitzNet对下列国家和地区的所有线路支持流媒体解锁：美国、�
 
 Bitz Net 推出节日特惠：中秋节 88 折优惠活动。
 
-Bitz Net 现提供限时88折优惠码：[ZQ2025](https://client.neobitznet.com/#/register?code=Vu7eyHrN)
+Bitz Net 现提供限时88折优惠码：[ZQ2025](https://ca.secbitz.net/#/register?code=Vu7eyHrN)
 
 ## 特色
 
