@@ -1,8 +1,8 @@
 # bitznet官网地址最新入口
 
-官网：[bitzconnect.com](https://enf.neobitz.net/#/register?code=Vu7eyHrN)
+官网：[bitzconnect.com](https://ent.thisbitz.com/#/register?code=Vu7eyHrN)
 
-最新直连地址：[atbitz.net](https://enf.neobitz.net/#/register?code=Vu7eyHrN)
+最新直连地址：[thisbitz.com](https://ent.thisbitz.com/#/register?code=Vu7eyHrN)
 
 ## 简介
 
@@ -14,7 +14,7 @@ BitzNet对下列国家和地区的所有线路支持流媒体解锁：美国、�
 
 Bitz Net 推出双旦特惠促销活动。
 
-限时85折优惠码：[XMAS2025](https://enf.neobitz.net/#/register?code=Vu7eyHrN)
+限时85折优惠码：[XMAS2025](https://ent.thisbitz.com/#/register?code=Vu7eyHrN)
 
 ## 特色
 
